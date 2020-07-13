@@ -9,9 +9,9 @@
   4. Metal. Usually I prefer the melodious and symphonic to the brutal and dischordant, except when I don't.
   5. This is all hard to classify. Genrefication is troubling. "Borders are scars on the face of the planet," and also on art. All music is folk music. That is all. (Except music made by non-humans)
 * Recent reads:
-  1. The Shattered Earth by N. K. Jemisin
-  2. Less by Andrew Sean Greer
-  3. Kaijumax: Season 4 by Xander Cannon
+  1. *The Fifth Season* by N. K. Jemisin
+  2. *Less* by Andrew Sean Greer
+  3. *Kaijumax: Season 4* by Xander Cannon
 * Favorite moments:
   1. Hot day, on my balcony, I'm not in a hurry, and a breeze kicks up and I can just listen to the leaves.
   2. I've been struggling to make something work, (fiction, code, Lego, whatever) brain's all hot twisted wires from the struggle. Attempt, check attempt, check, attempt... and then that moment. Functional result, and it's like cool water flows through my brain.
